@@ -7,4 +7,4 @@
 
 **Voce pode entrar em contato:**
 
-@00001114748936sp@al.educacao.sp.gov.br
+- @00001114748936sp@al.educacao.sp.gov.br
